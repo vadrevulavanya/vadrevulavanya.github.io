@@ -1,1 +1,0 @@
-# vadrevulavanya.github.io
